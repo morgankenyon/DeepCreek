@@ -2,6 +2,7 @@
 title: "Who Is Jesus to You?"
 date: 2022-09-17T13:18:22-05:00
 draft: false
+summary: Who is Jesus to you? Are you encountering the Jesus of scripture? Or your own Jesus?
 ---
 
 Who is Jesus to you?
