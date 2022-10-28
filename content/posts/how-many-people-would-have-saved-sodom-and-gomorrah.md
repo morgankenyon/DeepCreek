@@ -2,7 +2,7 @@
 title: "How Many People Would Have Saved Sodom and Gomorrah?"
 date: 2022-10-27T07:18:22-05:00
 draft: false
-summary:  
+summary: Sodom and Gomorrah are seen as objects of judgement. Are we focusing on the wrong part of the story?
 ---
 
 Growing up Christian, I've often heard our country compared to Sodom and Gomorrah.
