@@ -11,7 +11,7 @@ He spends hours a week reading and studying, but only gets 1 hour a week to pres
 
 There's so much he wants to tell people, so much he's learning that no one will ever know.
 
-If I remember correctly, he was lamenting this fact. It was a disappointment to him.
+If I remember correctly, this was distressing for him.
 
 That just caused me to question if that's a healthy outlook on the Christian faith?
 
@@ -23,9 +23,9 @@ And on one of these days, I was throwing out cassette tapes of sermons recorded 
 
 Literally months/years of prep work, years of sermons, just being thrown away.
 
-Sermons and learning about God definitely have their place. But for the first time in human history, we have access to almost infinite knowledge. Almost every church records their sermons and posts it online for free. Name a pastor or influencial speaker and you could probably get tons of their content instantenously. 
+Sermons and learning about God definitely have their place. But for the first time in human history, we have access to almost infinite knowledge. Almost every church records their sermons and posts it online for free. Name a pastor or influential speaker and you could probably get tons of their content instantaneously. 
 
-Yet our culture seems to becoming more hostile to Christianity. Less receptive to hearing God's word being taught. Why is that? Why aren't our swimming pools of sermons changing people's lives?
+Yet our culture seems to be becoming more hostile to Christianity. Less receptive to hearing God's word being taught. Why is that? Why aren't our swimming pools of sermons changing people's lives?
 
 Because it's easy to prep a sermon (or write a blog post, lol), it's harder to lead people to God.
 
@@ -55,4 +55,4 @@ Jesus will save us. Leading people to Jesus will save them. As our society falls
 
 Lets re-evaluate what we spend our time on, what we think of ministry and lead people to Christ.
 
-That's an infinetly harder challenge then writing a blog post every week. But it's really the only thing that works.
+That's an infinitely harder challenge than writing a blog post every week. But it's really the only thing that works.
