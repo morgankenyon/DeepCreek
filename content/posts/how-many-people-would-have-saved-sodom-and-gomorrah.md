@@ -23,7 +23,7 @@ Are you more committed to seeing God's judgment handed out to people? Or being t
 
 That was Jonah's problem. He just wanted God's judgment, he didn't want to see his enemies turn to God.
 
-Jesus calls us the salt of the earth. This analogy is probably lost on us Americans today, because we have refrigerators and freezers. But salt used to be one of the only ones to preserve meat.
+Jesus calls us the salt of the earth. This analogy is probably lost on us Americans today, because we have refrigerators and freezers. But salt used to be one of the only ways to preserve meat.
 
 Salt allowed meat to be saved for later. Without it, the meat would spoil.
 
