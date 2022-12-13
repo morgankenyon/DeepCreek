@@ -7,7 +7,7 @@ summary: Some New Testament books are named for their recipients. Americans act 
 
 When you look through the New Testament, certain books are named for their recipients.
 
-Ephesians was written to the church as Ephesus. Corinthians was written to the church a Corinth.
+Ephesians was written to the church as Ephesus. Corinthians was written to the church in Corinth.
 
 And in those letters, we find Paul talking about problems very specific to that church. It's not systematic theology, talking generally about faith or scripture. But specific advice and encouragement for that specific church.
 
@@ -28,7 +28,7 @@ We are a pretty self centered culture, so is it any wonder that we naturally tak
 
 If you read through Judges, the Samuels and Kings, every so often you'll come across a phrase like "and it's been that way to this day", "or it's still that way".
 
-If you take the time to journey to that, I'm 99.99% sure it's not that way.
+If you take the time to journey to that location, I'm 99.99% sure it's not that way.
 
 Why then do they say it is? Because when the book was written, it was that way. It was true at time of authorship. 
 
@@ -46,7 +46,7 @@ But only if you approach it the right way. If you come to the Bible with your as
 
 There's very little truth gained from that.
 
-But if we do the hard work of asking the Bible what questions it's trying to answer. How an ancient Israelite might have interpretted this? Once we treat the Bible with respect and reverance, it can start speaking truth into our lives.
+But if we do the hard work of asking the Bible what questions it's trying to answer. How an ancient Israelite might have interpreted this? Once we treat the Bible with respect and reverence, it can start speaking truth into our lives.
 
 If we assume the Bible was written for us, to answer our questions, we'll keep getting the Bible wrong. That's not the Bible's fault, it's your fault.
 

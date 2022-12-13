@@ -9,7 +9,7 @@ If God gave you the opportunity to determine the trinity, what 3 objects would y
 
 Would you substitute the Holy Spirit for the Bible? So Father, Son and the Bible?
 
-Before you get all mad about it about my heretical suggestion. Which of these 4 are the most comfortable to you?
+Before you get all mad about my heretical suggestion. Which of those 4 are the most comfortable to you?
 
 Which are you more likely to talk to people about? The Spirit? Or the Bible?
 
@@ -74,4 +74,4 @@ I think today we'd much more prescribe "read your bible" instead of "listen to t
 
 ## Wrapping Up
 
-As humans, there are things we more naturally gravitate towards certain things. I believe the tempation of the Bible draws us away from the Spirit. We find comfort in a book more than we do a relationship. But it shouldn't be that way.
+As humans, there are things we more naturally gravitate towards certain things. I believe the temptation of the Bible draws us away from the Spirit. We find comfort in a book more than we do a relationship. But it shouldn't be that way.

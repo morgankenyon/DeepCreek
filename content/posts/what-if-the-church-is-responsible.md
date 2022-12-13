@@ -1,5 +1,5 @@
 ---
-title: "What The Church Is Responsible for The World's Problems?"
+title: "What If The Church Is Responsible for The World's Problems?"
 date: 2022-11-08T07:18:22-05:00
 draft: false
 summary: It's so easy to blame others for our world's problems, but what if we take responsibility for the church instead of blaming others?
@@ -21,7 +21,7 @@ There's so many things that we rally against, so many things that we blame for w
 
 But what if we're the real reason?
 
-What if blaming others is just a way to deflect responsibilty? 
+What if blaming others is just a way to deflect responsibility? 
 
 Ensure that I don't actually have to do anything? 
 

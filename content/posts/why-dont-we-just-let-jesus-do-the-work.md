@@ -37,4 +37,4 @@ He spent the rest of his life sold out for the gospel.
 
 That kind of commitment is hard for me to understand. I don't live that type of life.
 
-That's probably because I need to encounter Jesus more frequently. If I had a deeper relationship with him, that would completely change my life too. The thing that other desperately need, encountering Jesus, is also the thing I desperately need.
+That's probably because I need to encounter Jesus more frequently. If I had a deeper relationship with him, that would completely change my life too. The thing that others desperately need, encountering Jesus, is also the thing I desperately need.
