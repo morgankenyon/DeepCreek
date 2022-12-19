@@ -2,3 +2,10 @@ baseURL = "http://example.org/"
 languageCode = "en-us"
 title = "Deep Creek"
 theme = "hugo-PaperMod"
+
+[menu]
+[[menu.main]]
+  identifier = "about"
+  name = "About"
+  url = "/about/"
+  weight = 10
