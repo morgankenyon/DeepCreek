@@ -37,7 +37,7 @@ Shouldn't we look more radically different? Shouldn't we have completely differe
 
 ## Worldly Sports
 
-Especially when it comes to sports, our "Christ centered" education comes with a side of power, control and hatred.
+Especially when it comes to sports, our "Christ centered" often education comes with a side of power, control and hatred.
 
 Is that what we should be learning?
 
@@ -61,4 +61,4 @@ If you think about how Christians today don't transform our culture, maybe it's 
 
 We're taught our culture's games and values, we're good students, so we live that out.
 
-Maybe we need to teach out kids differently? Maybe the sports field isn't the best place for Christian youth?
+Maybe we need to teach our kids differently? Maybe the sports field isn't the best place for Christian youth?

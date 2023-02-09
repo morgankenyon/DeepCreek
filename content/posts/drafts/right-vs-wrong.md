@@ -20,3 +20,5 @@ Jesus didn't attach many qualifications for following him. He just asked people 
 And his disciples regularly demonstrated how much of Jesus' mission they didn't understand. They were pretty dense people.
 
 Yet they ended up transforming the world after Jesus left. 
+
+How to balance the viewpoint of being right with Jesus's open invitation?

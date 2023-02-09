@@ -17,11 +17,11 @@ But if you're a Christian, the answer should be your church.
 
 If Christ's wisdom is foolishness to the world, why would we appeal to it's laws?
 
-## American Legality
+## American Exceptionalism
 
 Growing up American, I was constantly educated about the Constitution, the separation of government, the checks and balances, etc.
 
-These were the things that made America different. We have rights and priviledges that most people in the world can only dream of.
+These were the things that made America different. We have rights and privileges that most people in the world can only dream of.
 
 I'm not saying that isn't true, but I rarely heard the church effectively critique our government like Paul does.
 
@@ -33,21 +33,23 @@ The world's wisdom falls flat compared to Christ, do our actions reflect that?
 
 ## Who Are You Voting For?
 
-When Donald Trump was elected President in 2016, one of the viewpoints expressed by Christians is he'll appoint the "right" Supreme Court Justices.
+When Donald Trump was elected President in 2016, one of the viewpoints expressed by Christians is that he'll appoint the "right" Supreme Court Justices.
 
 If we get the right people in office, and they make the right laws, then our nation will heal/turn back/etc.
 
 Leadership definitely counts for something. And Paul didn't exist in a reality that Christians could be judges. (So maybe if our brother were in court, we could take stuff to them?? Fun to speculate)
 
-But I think Paul's comments were also talking about the system. The laws of government don't share in Christ's wisdom. So why would we make them our arbiters?
+But I think Paul's comments were also talking about the system. Judges are following the rules and laws of the government. Which doesn't necessarily reflect Christ's wisdom.
+
+So why would we make them our arbiters?
 
 ## Christ's Wisdom
 
-If Christ's wisdom is foolishness to the world, why would we appeal to it's laws?
+I'll repeat, if Christ's wisdom is foolishness to the world, why would we appeal to its laws?
 
 I think this fact, that we claim to be Christian but advocate for the Bill of Rights or the Constitution, reflects our captivation with worldly wisdom.
 
-Deep down inside of us, we've not fully accepted Christ and his wisdom. The upside down value system of His Kingdom.
+Deep down inside of us, we've not fully accepted Christ and his wisdom, and the upside down value system of His Kingdom.
 
 That's something I struggle with, something most Christians struggle with.
 

@@ -65,4 +65,4 @@ I'll close with "Feelings are Hard".
 
 Most people I know of struggle with them. I'm definitely no different.
 
-Do I wish it were different, yet. But maybe that's not something for me to control at the moment.
+Do I wish it were different, yes. But maybe that's not something for me to control at the moment.

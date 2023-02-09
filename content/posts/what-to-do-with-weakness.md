@@ -1,5 +1,5 @@
 ---
-title: "What to do With Weakness?"
+title: "What to Do With Weakness?"
 date: 2023-01-26T07:18:22-05:00
 draft: false
 summary: If Christ is perfected in my weakness, why am I so fearful about it?
@@ -17,7 +17,7 @@ I know that's immature. I know I should respond in grace and patience. But in th
 
 Those moments leave me confused and with questions.
 
-## What to do With Weakness?
+## What to Do With Weakness?
 
 In 2nd Corinthians, Paul talks about boosting in his weakness.
 
@@ -41,4 +41,4 @@ A lot of days, I wish that reality looked differently for me. I wish I felt a di
 
 But that isn't necessarily what he promises us. And thankfully, this isn't a test where we have to understand how it all works or give all the right answers.
 
-We are sheep, trying to follow the shepard. And even if we can't hear his voice, that doesn't mean he's not searching for us.
+We are sheep, trying to follow the shepherd. And even if we can't hear his voice, that doesn't mean he's not searching for us.
